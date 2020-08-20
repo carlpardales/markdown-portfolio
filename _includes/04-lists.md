@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Fishing
+2. Tramping
+3. Beach bumming
